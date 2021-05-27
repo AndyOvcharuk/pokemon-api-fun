@@ -1,1 +1,0 @@
-# andyovcharuk.github.io
